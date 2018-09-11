@@ -4,7 +4,7 @@ layout: post
 tags:
   - 现场
 comments: true
-title: 【8.17声★援★团现场视频！速转速存！】
+title: 【8.17声援团现场视频！速转速存！】
 ---
 
 
@@ -49,3 +49,23 @@ title: 【8.17声★援★团现场视频！速转速存！】
 
 
 点此下载：[https://syjs.com/817_9.mp4](https://www.weiyun-tencent.com/p-ty-3188-d?path=/8.17/27e1717b123d12df2b98c1c24ecf9db5.mp4)
+
+---
+
+---
+
+【官方网址|佳±工人和声扌爰团最新消息文章获取】
+全中国、全社会关注佳±建会事件的正义人士：
+
+★网址★
+
+[https://jiushishengli.github.io/archive/](https://jiushishengli.github.io/archive/)
+
+为相关消息的官方发布网址，请大家收藏，经常浏览，积极转发！推荐大家翻墙！
+
+★若此网址被封，请转移至：★
+
+[https://jiushishengli01.github.io/archive/](https://jiushishengli01.github.io/archive/)
+
+网址规律：数字更换为01、02、03...以此类推！
+请为营救所有工人同胞转发！
